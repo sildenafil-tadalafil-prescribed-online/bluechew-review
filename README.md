@@ -19,7 +19,7 @@
 <p>So I tried it out …</p>
 <h2>How Bluechew Works</h2>
 <p><img class="alignnone size-full wp-image-966" src="https://www.decipher-impact.com/wp-content/uploads/2019/08/20191009_174906.jpg" alt="" width="374" height="499" srcset="https://www.decipher-impact.com/wp-content/uploads/2019/08/20191009_174906.jpg 374w, https://www.decipher-impact.com/wp-content/uploads/2019/08/20191009_174906-225x300.jpg 225w" sizes="(max-width: 374px) 100vw, 374px" /></p>
-<p>BlueChew is a U.S. online subscription service where men can go to get prescribed chewable Viagra tablets. All tablets are prescribed by licensed physicians and they contain either Sildenafil or Tadalafil &#8211; the active ingredients in Viagra. What is <a href="https://en.wikipedia.org/wiki/Sildenafil">Sildenafil</a>? It’s the chemical that relaxes your blood vessels. Once the blood vessels in your penis are relaxed, more blood is able to flow and this is what helps you to get a better erection.</p>
+<p>BlueChew is a U.S. online subscription service where men can go to get prescribed chewable Viagra tablets.. All tablets are prescribed by licensed physicians and they contain either Sildenafil or Tadalafil &#8211; the active ingredients in Viagra. What is <a href="https://en.wikipedia.org/wiki/Sildenafil">Sildenafil</a>? It’s the chemical that relaxes your blood vessels. Once the blood vessels in your penis are relaxed, more blood is able to flow and this is what helps you to get a better erection.</p>
 <p>There are numerous BlueChew plans available, you get access to professional medical support, and you never have to once see a doctor in person. Instead, you just fill out a few questions, get your prescription &#8211; and take your pills.</p>
 <h5><strong>To sum up:</strong></h5>
 <ul>
